@@ -1,1 +1,2 @@
-da Silva Jean-Charles (https://github.com/jcharlesDS)
+DA SILVA Jean-Charles (https://github.com/jcharlesDS)
+ZHUGE Mélanie (https://github.com/XXicheese/)
